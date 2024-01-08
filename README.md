@@ -1,5 +1,5 @@
 # curiosity-Extension
-** a way to give a new  path to my curiosity  **
+# a way to give a new  path to my curiosity  #
 ***
 ## a list of things that excites me  also keep updating that list 
 ***
