@@ -1,8 +1,15 @@
 # curiosity-Extension
 ** a way to give a new  path to my curiosity  **
+***
 ## a list of things that excites me  also keep updating that list 
+***
 ### whenever i have time i visit one of these listed resources..
 
+***
+
+9 jan 2024
+
+***
 ***
 
 
